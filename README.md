@@ -1,4 +1,4 @@
-## !Hola¡ Soy Gabriel Iborra Vicente
+## Hola, soy Gabriel Iborra Vicente
 
 Esta es mi cuenta de estudiante (DAW – CIFP Carlos III).
 
